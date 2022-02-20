@@ -4,7 +4,7 @@
 ### Aqui posto um pouco dos meus projetos e estudos diários. 👨‍🎓📝
 
 ### 📖 Sobre mim:
-17y
+16y
 São Paulo, Brazil
 </details>
 
